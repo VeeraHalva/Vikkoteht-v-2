@@ -1,0 +1,1 @@
+Saatanaa taas kyselin, mut se on kuulema kesälomalla. Meni hyvä lammas hukkaan 
